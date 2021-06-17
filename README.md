@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @YogeshShirsikar
-- 👀 I’m interested in Learning New Technology
+- 👀 I’m interested in Learning and Exploring new things ,technology and places.
 - 🌱 I’m currently learning Internet of Things
 
 <!---
